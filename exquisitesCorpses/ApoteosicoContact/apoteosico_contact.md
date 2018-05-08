@@ -1,4 +1,4 @@
-De camino a casa Carlos recibe un WhatsApp con un flyer en PDF. Tarde de Performances. Apoteosico contact Cadiz festival.
+De camino a casa Carlos recibe un WhatsApp con un flyer en PDF: "Tarde de Performances. Apoteosico contact Cadiz festival"
 
 Es mañana por la tarde y ya tenía planes hechos para cocinar y cenar con su amigo Fred. Pero decide que prefiere ir al festival de Cádiz. A Carlos le encanta la danza y no se quiere perder esta oportunidad de bailar con otros profesionales.
 
