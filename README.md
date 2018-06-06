@@ -34,7 +34,7 @@
 ## 6 - Imaging u/d news (30mins.)
   * Create a headline or a more elaborate news story
   * Feel free to use an image to describe the news
-
+[Results of the participants](https://github.com/AVFLOSS/UtopiasDistopias/blob/master/noticias_desde_el_futuro.md)
 ## (BREAK 20mins.)
 
 ## 7 - Exquisite corpse (3mins.*npeople)
